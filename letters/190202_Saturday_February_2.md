@@ -94,5 +94,11 @@ Dada
 
 
 
+PS - Update at 9:30am. Leo, you and I were playing (cutting words and shapes out of a magazine). You said you didn't feel good. I asked what was the matter and you said _"I don't like the ideas in my head."_ You're two and half. Kid. I tell you what. You're so articulate and aware for your age. And, I'm sorry because you come by that anxiety and mental angst honestly. Your mother and I both deal with it even now, and I'm sure we passed on heavy doses to you and Henry. 
+
+You sat in my lap for a bit and we talked about how you were scared that monsters would come and about how I get scared a lot too. How not everything that looks scary really is, but also about how it's okay to be scared. Everyone feels that way. 
+
+Then you said you wanted to be alone in your house but you couldn't because you were too little. So, we went into your room and I got Henry up from his nap. Then you got to be alone in your room by yourself. We talked about how important it is to get alone time when we need it. You stayed in by yourself for 3-4 minutes and then came out and gave me a hug. You're such a big guy. I love you. 
+
 
 
