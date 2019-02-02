@@ -72,6 +72,8 @@ _A note on privacy: I'm linking to a private instagram account for most of the p
 
 [Saturday, January 12, 2019](letters/190112_Saturday_January_12.md)
 
+[Saturday, February 2, 2019](letters/190202_Saturday_February_2.md)
+
 ----
 
 ## Notes
