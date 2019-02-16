@@ -36,7 +36,7 @@ Archived here for future reference:
 </tbody>
 </table>
 
-<p>Only on the equinoxes (Sept/Mar 21st) does the Sunrise/set at due East/West. At the solstices (Dec/June 21st) the position is its furthest South/North of East/West. How far to the North or South that is depends on your lattitude. There are other posted answers on this <a href="/our-solar-system/the-earth/day-night-cycle/184-how-does-the-location-of-sunrise-and-sunset-change-throughout-the-year-advanced">here</a>, and <a href="/our-solar-system/the-sun/observing-the-sun/186-why-does-the-location-of-sunrise-change-intermediate">here</a>.</p>
+<p>Only on the equinoxes (Sept/Mar 21st) does the Sunrise/set at due East/West. At the solstices (Dec/June 21st) the position is its furthest South/North of East/West. How far to the North or South that is depends on your latitude.</p>
 
 <p>Now lets get to the Moon. The time of day that the Moon rises or sets depends on its phase. This should be obvious when you remember that the phase of the Moon depends on the relative positions of the Sun, Moon and Earth. For example when the Moon is Full it is opposite the Earth from the Sun, so when the Sun sets, the Moon must rise and vice versa. Here is a table summarizing that:</p>
 
