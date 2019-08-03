@@ -42,3 +42,5 @@
 [Thursday, June 13, 2019](letters/190613_Thursday_June_13.md)
 
 [Saturday, July 27, 2019](letters/190727_Saturday_July_27.md)
+
+[Saturday, August 3, 2019](letters/190803_Saturday_August_3.md)
