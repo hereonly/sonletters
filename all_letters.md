@@ -43,4 +43,9 @@
 
 [Saturday, July 27, 2019](letters/190727_Saturday_July_27.md)
 
+[August Vacation Recap](letters/190800_Vacation_August_Recap.md)
+
 [Saturday, August 3, 2019](letters/190803_Saturday_August_3.md)
+
+[Monday, August 5, 2019](letters/190805_Monday_August_5.md)
+
