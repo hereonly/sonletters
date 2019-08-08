@@ -13,4 +13,11 @@ We went for a hike in the park. Then we got veggies from the farmer's market. Yo
 We went to Riverbank State Park and swam in the pool. After nap time, we had a picnic in the park with Kevin, Mirren, and Isabelle. 
 
 **Monday - 8/5**
-CMOM! Children's Museum of Manhattan. This place was five floors of wow! Leo and Henry, you both _loved_ it. They had sections that were perfect for kids of both your ages. We looked at photos of it before we went. Leo, you saw the fire truck, MTA bus, and taxis that you could pretend to drive. We tried going to other floors first, but you just wanted to drive the bus, so we made a bee-line for the 3rd floor. Henry, the 3rd floor also had an "under two" section with balls and peek-a-boo, and big foam blocks. There was a dance section, dress up, art stations for the older kids and _so_. _many_. _rooms_. Such a hit. Then we had a picnic on the benches in the lane divider parks of broadway (ah, the upper west side) and watched the cars go by. Then we went back for round two of the museum. That threw our nap schedule off a bit, but what the hell it was a blast. After nap time Leo and I went to the library to return our books and get a few more (Pete the Cat books, because Pete made an appearance at CMOM). We saw Martin and Aana at the library and Leo shared one of the three Pete the Cat books with Martin. We also got the next Professor Astro Cat book. Martin and Leo played in the toy section of the library with another older kid, and then LEO GOT HIS OWN LIBRARY CARD! What a day! 
+CMOM! Children's Museum of Manhattan. This place was five floors of wow! We had a picnic on the benches in the middle of Broadway and watched the cars while we ate. After nap time, Leo and I went to the library (unplanned playdate with Martin) and LEO GOT HIS OWN LIBRARY CARD. 
+
+**Tuesday - 8/6**
+The boys went to school. Sarah and I went to Hanuman. Then we had a low-key writing and _Veronica Mars_ binge day.
+
+**Wednesday - 8/7**
+Leo and I went to the American Museum of Natural History with Seth. We saw the T-Rex special exhibit. After nap time, the whole family went to Indian Road playground and then Indian Road Cafe for dinner. 
+
