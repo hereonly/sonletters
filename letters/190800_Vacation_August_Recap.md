@@ -36,4 +36,25 @@ Despite the hangover, I got Leo and Henry up early and Mama slept in. Then aroun
 **Monday - 8/12**
 Mama let me sleep in, and took Henry and Leo to the playground with Matt and Ellen. I met up with them and then took Leo to the Bronx Zoo. There was a Dinosaur Safari hayride. Leo soaked up the children's zoo. And then we rode the underwhelming Zoo Shuttle around the park (we need to go back for the Nature Walk which is a collection of rope bridges). After nap time, we went to Seth and Helene's house for dinner. Leo got carsick and threw up on the way there. 
 
+Tuesday - 8/13
+Matt left. The boys went to school. Sarah and I went to Hanuman, and then had a low-key recovery day.
+
+Wednesday - 8/14
+Ellen left, Tia arrived. Leo and I went to the New York Transit Museum in Brooklyn to see the old trains. The Highlight were the busses he could dive and the folding paper bus they gave him at the lunchroom. After nap time, we had dinner with Tia. 
+
+Thursday - 8/15
+We packed up the car, picked the boys up from daycare early, and drove to Wildwood State Park on Long Island. We were in the same spot C 15 that exactly four years early we'd been in when we conceived Leo. 
+
+Friday - 8/16
+We woke up at Wildwood, went swimming in the Long Island Sound, made a big fire, ate s'mores, took naps, read books in the hammock, Henry played "soccer" by chasing a ball around the camp site, and Leo kept dragging his chair further and further back form the fire.
+
+Saturday - 8/17
+My 38th Birthday. We woke up in the woods and had Pie and coffee for breakfast (along with bacon and eggs). We packed up camp and drove home. Pizza and beer for dinner. After bed Tia and Sarah watched trashy TV while I read my book. 
+
+Sunday - 8/18
+We went to Brooklyn to visit the Smiths, who just bought a beautiful new condo on the Williamsburg waterfront. After nap time, Leo and I went to the library to get books for the trip.
+
+Monday - 8/19
+The boys went to daycare, and Sarah and I had a low-key recovery day. 
+
 
