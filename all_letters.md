@@ -49,3 +49,6 @@
 
 [Monday, August 5, 2019](letters/190805_Monday_August_5.md)
 
+[Sunday, September 15, 2019](letters/190915_Sunday_September_15.md)
+
+[Saturday, September 28, 2019](letters/190928_Saturday_September_28.md)
