@@ -52,3 +52,6 @@
 [Sunday, September 15, 2019](letters/190915_Sunday_September_15.md)
 
 [Saturday, September 28, 2019](letters/190928_Saturday_September_28.md)
+
+[Saturday, October 5, 2019](letters/191005_Saturday_October_5.md)
+
