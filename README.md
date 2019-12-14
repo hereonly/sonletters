@@ -19,27 +19,26 @@ Dada
 
 # Table of Contents
 
-_These letters are as short or as long as they need to be. "Letters" might not even be the right word for them, but that's what I'm going with._
+These letters are as short or as long as they need to be. "Letters" might not even be the right word for them, but that's what I'm going with.
 
-_I'm writing around a handful of major themes:_
-* _Lessons learned / advice_
-* _Your father's beliefs + mental models_
-* _Formative moments (for me and you)_
-* _Stories about our family (immediate and extended)_
-* _Stories from watching you grow up_
-* _Books to read_
-* _Great questions_
-* _I love you_
+I'm writing around a handful of major themes:
+* Lessons learned / advice
+* Your father's beliefs + mental models
+* Formative moments (for me and you)
+* Stories about our family (immediate and extended)
+* Stories from watching you grow up
+* Books to read
+* Great questions
+* I love you
 
-_It occurs to me that what I share will reveal more about me than about life itself. I hope you'll find it useful too, but if nothing else it will help you paint a picture of your father's inner life. The things I've needed to hear in my life and which I've made an effort to remind myself of over the years. Things I've used to direct my trajectory or counterbalance my habits._
+It occurs to me that what I share will reveal more about me than about life itself. I hope you'll find it useful too, but if nothing else it will help you paint a picture of your father's inner life. The things I've needed to hear in my life and which I've made an effort to remind myself of over the years. Things I've used to direct my trajectory or counterbalance my habits.
 
-_A note on style: I'm only two letters in and I'm using "mother," "mama," "mom," interchangeably. We call ourselves "Mama" and "Dada" right now, but who knows what you'll call us in the years between when I write these and when you read them. I'm just going to be gloriously inconsistent and love that. If it's weird for you when you read, so be it. xoxo_
+A note on style: I'm only two letters in and I'm using "mother," "mama," "mom," interchangeably. We call ourselves "Mama" and "Dada" right now, but who knows what you'll call us in the years between when I write these and when you read them. I'm just going to be gloriously inconsistent and love that. If it's weird for you when you read, so be it. xoxo
 
-_A note on privacy: I'm linking to a private instagram account for most of the photos. You'll have access, and I think they'll stay in business for enough years to keep hosting the images securely (since they're owned by Facebook). I'm also name-checking our and your friends. The stories I'm telling are personal, but I'm working to keep them from being too revealing while still honest and intimate. This place I'm keeping them is a public repository (so you and everyone else has access if they know where to look for it), but I've renamed the branch from "master" to "main" to exclude it from search engines. That means what's said in here isn't private, but it's also not easy to find when searching._
+A note on privacy: I'm linking to a private instagram account for most of the photos. You'll have access, and I think they'll stay in business for enough years to keep hosting the images securely (since they're owned by Facebook). I'm also name-checking our and your friends. The stories I'm telling are personal, but I'm working to keep them from being too revealing while still honest and intimate. This place I'm keeping them is a public repository (so you and everyone else has access if they know where to look for it), but I've renamed the branch from "master" to "main" to exclude it from search engines. That means what's said in here isn't private, but it's also not easy to find when searching.
 
 ----
 
-{{TOC}}
 
 ## Letters
 [The long list of all letters.](all_letters.md)
