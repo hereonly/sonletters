@@ -56,3 +56,5 @@
 [Saturday, October 5, 2019](letters/191005_Saturday_October_5.md)
 
 [Saturday, December 14, 2019](letters/191214_Saturday_December_14.md)
+
+[Saturday, February 15, 2020](letters/200215_Saturday_February_15.md)
