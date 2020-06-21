@@ -60,3 +60,6 @@
 [Saturday, February 15, 2020](letters/200215_Saturday_February_15.md)
 
 [Wednesday, April 15, 2020](letters/200415_Wednesday_April_15.md)
+
+[Sunday, June 21, 2020](letters/200621_Sunday_June_21.md)
+
